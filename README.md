@@ -1,1 +1,2 @@
-О�ОлеAlexandr Nazarov 519
+Alexandr Nazarov 519
+Проскура Галина
